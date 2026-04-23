@@ -1,0 +1,2 @@
+# Muhamadqodir
+Mening birinchi loyiham
